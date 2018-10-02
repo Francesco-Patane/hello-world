@@ -1,2 +1,4 @@
-# hello-world
-world
+# Francesco Patanè
+I'm a creative middle age pioneer and musician. 
+My passion in discovering the 'new' every time made me pass through the development of the media&communication world from the beginning in the '90s of last century.
+Glad to met you!
